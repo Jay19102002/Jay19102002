@@ -7,7 +7,7 @@
 
 - 🔭 I’m currently working on **Problem Solving**
 
-- 🌱 I’m currently learning **DSA**
+- 🌱 I’m currently learning **Data Analytics**
 
 - 📫 How to reach me **jaydewangan019@gmail.com**
 
