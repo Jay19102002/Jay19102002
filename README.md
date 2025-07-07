@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **Data Analytics**
 
-- 📫 How to reach me **jaydewangan019@gmail.com**
+- 📫 How to reach me **jaydewanganofficial19@gmail.com**
 
 - ⚡ Fun fact **I have a self doubt on myself**
 
